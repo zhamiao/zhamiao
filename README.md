@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zhamiao
 - 👀 I’m interested in sorting the information and data.
-- 🌱 I’m currently learning how to survive in the crypto market.
+- 🌱 I’m currently preparing my phd in environmental protection.
 - 💞️ I’m looking to collaborate on 
 - 📫 tele:@zhamiao094
 
